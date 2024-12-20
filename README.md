@@ -1,1 +1,0 @@
-# PalPact.github.io
